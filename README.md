@@ -1,1 +1,1 @@
-# DicitLux666.github.io
+# DicitLux.github.io
